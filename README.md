@@ -1,1 +1,0 @@
-# practicum-sprint-8
